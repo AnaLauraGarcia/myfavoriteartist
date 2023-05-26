@@ -1,1 +1,0 @@
-# myfavoriteartist.github.io
